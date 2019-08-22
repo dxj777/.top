@@ -9,6 +9,8 @@
 
 [example](http://forestlp.github.io) {:target="_blank"}
 
+<http://yinping4256.github.io>{:target="_blank"}
+
 大香蕉视频最新地址2：  https://www.dxj111.top/
 
 大香蕉视频最新地址3：  https://www.dxj222.top/
