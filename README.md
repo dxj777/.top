@@ -5,9 +5,9 @@
 
 [点我访问2](https://www.baidu.com/?_blank)
 
-<a href="https://www.baidu.com" target="_top">链接文本</a>
+<a href="https://www.baidu.com" target="_blank">链接文本</a>
 
-[example](http://forestlp.github.io){:target="_blank"}
+[example](http://forestlp.github.io) {:target="_blank"}
 
 大香蕉视频最新地址2：  https://www.dxj111.top/
 
