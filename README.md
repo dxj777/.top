@@ -7,6 +7,8 @@
 
 <a href="https://www.baidu.com" target="_top">链接文本</a>
 
+[example](http://forestlp.github.io){:target="_blank"}
+
 大香蕉视频最新地址2：  https://www.dxj111.top/
 
 大香蕉视频最新地址3：  https://www.dxj222.top/
