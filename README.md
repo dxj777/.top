@@ -1,20 +1,13 @@
 # 大香蕉视频最新地址发布页
 ## 收藏此页面，永远不迷路
 ## 
-大香蕉视频最新地址1：  [点我访问](https://www.dxj777.top/ ?_blank)
+大香蕉视频最新地址1：  [点我访问https://www.dxj777.top](https://www.dxj777.top/)
 
-[点我访问2](https://www.baidu.com/?_blank)
+大香蕉视频最新地址2：  [点我访问https://www.dxj111.top](https://www.dxj111.top/)
 
-<a href="https://www.baidu.com" target="_blank">链接文本</a>
+大香蕉视频最新地址3：  [点我访问https://www.dxj222.top](https://www.dxj222.top/)
 
-[example](http://forestlp.github.io) {:target="_blank"}
+大香蕉视频最新地址4：  [点我访问https://www.dxj333.top](https://www.dxj333.top/)
 
-<http://yinping4256.github.io>{:target="_blank"}
-
-大香蕉视频最新地址2：  https://www.dxj111.top/
-
-大香蕉视频最新地址3：  https://www.dxj222.top/
-
-大香蕉视频最新地址4：  https://www.dxj333.top/
-
-大香蕉视频最新地址5：  https://www.dxj555.top/
+大香蕉视频最新地址5：  [点我访问https://www.dxj555.top](https://www.dxj555.top/)
+ 
