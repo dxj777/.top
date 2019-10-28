@@ -1,11 +1,9 @@
 ##### QQ或微信打不开以下网址，请使用浏览器访问
 大香蕉视频地址1：  [点我访问https://www.dxj777.top](https://www.dxj777.top/portal.php?skip=true)
 
-CCAV地址：  [点我访问https://ccav.icu](https://ccav.icu/)
+随机观看爽片1：  [点我访问 ](http://s9531873.www.awhost.cn/)
 
-爱爱视频地址：  [点我访问https://22sp.xyz](https://22sp.xyz/)
-
-爱爱TV地址：  [点我访问https://22tv.xyz](https://22tv.xyz/)
+随机观看爽片2：  [点我访问http://yl.dxj888.top](http://yl.dxj888.top/)
 
 大香蕉视频地址2：  [点我访问https://www.dxj111.top](https://www.dxj111.top/portal.php?skip=true)
 
